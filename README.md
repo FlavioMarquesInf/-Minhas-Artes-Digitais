@@ -1,2 +1,2 @@
-# -Minhas-Artes-Digitais
+# 🎨-Minhas-Artes-Digitais
 Minhas artes digitais feitas com Krita
